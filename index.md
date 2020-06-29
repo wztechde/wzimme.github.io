@@ -10,4 +10,4 @@ this site is for wolfram only
 
 > Nun sieh mal, was Du mich wieder hast anrichten lassen
 
-<img src="https://seeklogo.com/images/E/eye-of-horus-cosmetics-logo-B718652589-seeklogo.com.png">
+<img src="https://www.freepik.com/free-vector/space-background-with-telescope_1536602.htm#page=1&query=astronomy&position=1">
